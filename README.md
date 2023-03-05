@@ -14,3 +14,5 @@
 提取码：6666
 - 2022高数分类讲解及练习 链接：https://pan.baidu.com/s/1n1YuZciZHNKu5-IMrnN7bg 
 提取码：6666
+***
+如有链接失效，请联系作者维护：1481270785@qq.com
